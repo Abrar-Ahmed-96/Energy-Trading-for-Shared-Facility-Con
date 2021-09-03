@@ -1,1 +1,1 @@
-# Energy-Trading-for-Shared-Facility-Contro of a Smart Society
+# Energy-Trading-for-Shared-Facility-Control of a Smart Society
